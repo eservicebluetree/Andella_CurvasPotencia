@@ -1,0 +1,1 @@
+# Andella_CurvasPotencia
